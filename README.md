@@ -1,4 +1,4 @@
-### Hi, I'm @Plxii! 👋
+### Hi, I'm [@Plxii](https://github.com/Plxii/)! 👋
 
 ## About Me
 I'm a passionate developer with a love for coding and exploring new technologies. Currently, my interests revolve around Java and Assembly 8086. I'm constantly learning and expanding my knowledge in these areas.
