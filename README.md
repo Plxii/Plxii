@@ -28,6 +28,8 @@ Instagram: [iplxi._](https://www.instagram.com/iplxi._/)
 
 Twitter: [@_plxii](https://twitter.com/_plxii)
 
+Discord: [.plxi](https://discord.com/users/709727567120171008)
+
 Email: *Plai.i@outlook.com*
 
 Feel free to explore my repositories and projects. Don't hesitate to reach out if you have any questions or would like to collaborate. Let's create something amazing together! 😄
